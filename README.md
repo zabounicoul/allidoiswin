@@ -1,2 +1,3 @@
 # allidoiswin
-put your hands up
+put your paws up
+what about now?
