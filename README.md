@@ -1,3 +1,3 @@
 # allidoiswin
-put your hooves up
+put your chippies up
 what about now?
